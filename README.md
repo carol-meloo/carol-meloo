@@ -1,4 +1,4 @@
-## Hi there 👋
+## I hate the government
 
 <!--
 **carol-meloo/carol-meloo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
